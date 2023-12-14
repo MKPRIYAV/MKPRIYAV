@@ -2,7 +2,7 @@
 - 👀 I’m interested in Hunting Best Talents..
 - 🌱 I’m currently learning Trends in Recruitment..
 - 💞️ I’m looking to collaborate on International Market..
-- 📫 How to reach me .. pingme
+- 📫 How to reach me .. LinkedIn - https://www.linkedin.com/in/mkpriyav
 
 <!---
 MKPRIYAV/MKPRIYAV is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
